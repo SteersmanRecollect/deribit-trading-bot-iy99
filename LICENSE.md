@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with secure Automation Script for bitmex trading bot | position-sizing + scalping, the #1 bitmex trading bot. Includes position-sizing and scalping for a
 
 
 
